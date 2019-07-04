@@ -1,5 +1,3 @@
 # acak-acak
 
-meeoowewrewnbdsydewdscge
-asdladklakd
-
+meeoowewrewnbdsydeRIBUTYOKKKK
